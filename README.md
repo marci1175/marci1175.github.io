@@ -1,1 +1,1 @@
-lacika te kis cigány
+Laca kedves
